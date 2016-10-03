@@ -50,7 +50,7 @@ Todas serão **AO VIVO** via Hangouts.
 
 O início de cada turma se dará na semana após o fechamento dela que deve ser com 8, mínimo, ou 9 alunos, máximo. Por exemplo:
 
-Estou iniciando a divulgação agora 26 de Setembro de 2016, caso feche até 30 de Stemebro de 2016 esse módulo iniciará em 3 de Outubro de 2016.
+**Estou querendo iniciar essa turma em 17 de Outubro de 2016!**
 
 ## Custo
 
